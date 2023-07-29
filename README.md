@@ -22,7 +22,7 @@ no experience looking forward to gain some :-)
 
 ## Education
 
-- MBA in Marketing, Savitribai phule pune university, Pune | 202
+- MBA in Marketing, Savitribai phule pune university, Pune | 2022
 
 ## Interests
 
